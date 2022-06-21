@@ -1,1 +1,1 @@
-so cool
+git is so cool
